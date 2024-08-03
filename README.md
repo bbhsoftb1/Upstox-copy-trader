@@ -4,7 +4,8 @@ Upstox-copy-trade-software
 
 Check software on below link
 
-https://1.envato.market/0ZMD7Y
+https://bhansalisoft.com/Product/Copy-Trading-Software--India-Broker
+
 
 <h4>What is Upstox-copy-trade-software ?</h4>
 <p>
